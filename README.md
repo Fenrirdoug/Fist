@@ -1,1 +1,1 @@
-sincroniçou
+sincro
